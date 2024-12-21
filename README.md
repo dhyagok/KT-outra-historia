@@ -1,2 +1,2 @@
-# KT-outra-historia
-Kikko &amp; Tonny " agora é outra história"
+# Kikko-e-tonny-outrahistoria
+ agora é outra história
